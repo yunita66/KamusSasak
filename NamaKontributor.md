@@ -1,6 +1,6 @@
 ## Tuliskan Nama Kalian disini:
 
-1. Fathuriadi
+1.wahyunita falinda
 2. 
 3.
 4.
